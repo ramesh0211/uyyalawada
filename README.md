@@ -1,3 +1,0 @@
-# uyyalawada
-My village 
-#eee
